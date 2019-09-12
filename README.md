@@ -1,2 +1,2 @@
-# Alan_Antonio_Mu-oz_Juarez
+# Alan.Antonio.Muñoz.Juarez
 UPZMG-17310900
